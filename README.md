@@ -4,6 +4,8 @@
 
 Product Manager at Faber-Castell and Deca · Head of Product Marketing at Ubirider (Porto) · Head of Marketing, Growth & Product at Frota 162 (B2B SaaS) · Head of Marketing & Growth at GGPoker · Founder of Growth S.A.
 
+[LinkedIn](https://www.linkedin.com/in/samira-penteado) · [sami.penteado@gmail.com](mailto:sami.penteado@gmail.com)
+
 ---
 
 ## Case studies
@@ -107,3 +109,7 @@ Product Manager at Faber-Castell and Deca · Head of Product Marketing at Ubirid
 - Co-author of *Mulheres no Marketing Vol. 2* · Mentor on ADPList (1,000+ certified minutes)
 
 EU citizen, authorized to work in the EU and Brazil · Based in São Paulo (GMT-3)
+
+## Contact
+
+[LinkedIn](https://www.linkedin.com/in/samira-penteado) · [sami.penteado@gmail.com](mailto:sami.penteado@gmail.com)
